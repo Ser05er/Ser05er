@@ -1,6 +1,7 @@
                                                                   Hey im Ser!
                                                               I go by she/he/they
-                                                              
+                                                              [Screenshot 2024-07-25 152134](https://github.com/user-attachments/assets/bf6f0bf8-f8d6-4755-8402-b66ba33c3d77)
+
 
 
 INTRESTS/FANDOMS:
