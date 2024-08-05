@@ -1,6 +1,8 @@
+![Screenshot 2024-07-25 152134](https://github.com/user-attachments/assets/f63dfc58-124d-4ea4-95fb-6f39f9b71ef6)
+
 Hey im Ser!
 I go by she/he/they
-[Screenshot 2024-07-25 152134](https://github.com/user-attachments/assets/bf6f0bf8-f8d6-4755-8402-b66ba33c3d77)
+
 
                                                               
 
