@@ -6,8 +6,8 @@ I go by she/he/they
 
                                                               
 
+![image](https://github.com/user-attachments/assets/8b686738-4290-4137-a76c-7e0c29e92f90)
 
-INTRESTS/FANDOMS:
 
 Needy Streamer Overload
 
