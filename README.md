@@ -2,6 +2,7 @@
 
 Hey im Ser!
 I go by she/he/they
+This is my about me! :3
 
 
                                                               
@@ -36,7 +37,8 @@ Regretivator
 DDLC
 
 
-GAMES I PLAY:
+![image](https://github.com/user-attachments/assets/44b96a64-21aa-444e-9e17-c9da832237b5)
+
 
 Roblox
 
@@ -55,7 +57,8 @@ DDLC
 Ponytown
 
 
-WHAT I LIKE DOING:
+![image](https://github.com/user-attachments/assets/d83c4d73-e637-4cb5-b4ab-48e04a42e916)
+
 
 Cosplaying
 
@@ -66,7 +69,8 @@ Drawing/Painting
 Gaming
 
 
-COSPLAYS!(INCLUDING WIPS)
+![image](https://github.com/user-attachments/assets/e503690b-d7ce-4530-81ec-7d2894fcb129)
+
 
 Sebastian Solace (wip)
 
