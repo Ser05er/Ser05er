@@ -1,10 +1,11 @@
 ![Screenshot 2024-07-25 152134](https://github.com/user-attachments/assets/f63dfc58-124d-4ea4-95fb-6f39f9b71ef6)
 
 Hey im Ser!
-I go by she/he/they
+I go by they/them/it/its
 This is my about me! :3
 
-
+UPDATED INTRO IM TOO LAZY TO UPDATE GITHUB I DONT USE THIS THAT MUCH SO WHERES MY STRAWPAGE!
+https://ser05er.straw.page/
                                                               
 
 ![image](https://github.com/user-attachments/assets/8b686738-4290-4137-a76c-7e0c29e92f90)
